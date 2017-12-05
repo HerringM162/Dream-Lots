@@ -1,1 +1,3 @@
-# Dream-Lots
+### [Sharing Dreams](https://cdn.shopify.com/s/files/1/0535/6917/products/bitternessdemotivator_grande.jpeg?v=1403275901)  
+>"Never be afraid to **share** your dreams with the world...  
+>Because there is nothing the world loves more than the taste of **really** sweet dreams!"
